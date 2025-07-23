@@ -1,4 +1,4 @@
-# 💫 About Me:
+# ✨ About Me:
 I am ujjwal kumar sinha,<br>currently pursuing Btech in CSE(AI)
 
 
